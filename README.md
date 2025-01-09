@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Gamer9882HasNoDad
+- 👋 Hi, I’m @Gamer9882:)
 - 👀 I’m interested in finding my dad
 - 🌱 I’m currently learning how to find my dad
 - 💞️ I’m looking to collaborate on the journey of finding my dad
